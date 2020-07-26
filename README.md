@@ -1,2 +1,0 @@
-# ontvoering
-letterlijk | figuurlijk
